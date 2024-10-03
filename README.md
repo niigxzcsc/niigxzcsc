@@ -1,9 +1,7 @@
-Oieeeeeeeeee, yo soy a *Agente Dodo*!!
+Oie, sou a _"Agente Dodo"_ ♟️
 
-Sou a melhor levantadora do mundo, sou pique Macris...
-Também sou a melhor zagueira do mundo, beijão :kiss: :kiss: :kiss:
-
-KISSES DA AGENTE DONADI. ♟️
+"Fizeste-nos para Ti e inquieto está nosso coração enquanto não repousa em Ti"
+                                           -Santo Agostinho
 
 
 
@@ -11,6 +9,5 @@ KISSES DA AGENTE DONADI. ♟️
 
 
 
-
-
-TE AMO DOVE CAMEROOOOOOOOOOOOOOOOOON!!!!!!! 🕊️
+                                           Te amo Dove Cameron 🕊️
+                                           ![Dove linda](https://media.tenor.com/hu78UjEuLfsAAAAM/mal.gif)
