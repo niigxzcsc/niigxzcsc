@@ -1,7 +1,4 @@
-Oie, sou a _"Agente Dodo"_ ♟️
-
-"Fizeste-nos para Ti e inquieto está nosso coração enquanto não repousa em Ti"
-                                           -Santo Agostinho
+8==================D~
 
 
 
